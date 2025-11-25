@@ -20,7 +20,6 @@ LO AMO
 
 
 
-come poche cose al mondo \n
 si, ci sono cose che amo di più
 ovvio
 però 
